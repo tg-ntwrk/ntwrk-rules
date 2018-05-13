@@ -1,4 +1,4 @@
-# Правила Telegram-группы [@ntwrk](https://t.me/ntwrk).
+# Правила Telegram-группы [@ntwrk](https://t.me/ntwrk)
 
 ## Общая информация
 
